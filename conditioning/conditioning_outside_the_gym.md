@@ -1,3 +1,10 @@
+- [🏋️‍♂️ **Strength \& Conditioning (S\&C)**](#️️-strength--conditioning-sc)
+- [🫁 **Cardio \& Endurance**](#-cardio--endurance)
+- [🧘 **Mobility \& Recovery**](#-mobility--recovery)
+- [🧠 **Mental Conditioning**](#-mental-conditioning)
+- [🧪 Periodization](#-periodization)
+- [Real-World Examples](#real-world-examples)
+
 Jiu Jitsu world champions often engage in a **significant amount of conditioning work outside of regular BJJ classes**, but the exact volume and type can vary based on their style, goals, and stage in their competitive cycle. Here's a breakdown of what many top-level competitors do:
 
 ---
